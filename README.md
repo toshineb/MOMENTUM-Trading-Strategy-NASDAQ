@@ -1,0 +1,1 @@
+# MOMENTUM-Trading-Strategy-NASDAQ
